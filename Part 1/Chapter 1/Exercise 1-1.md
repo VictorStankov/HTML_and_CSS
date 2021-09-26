@@ -1,0 +1,6 @@
+- Currently my goals are to learn the basics of HTML and CSS so I can get a feeling for web development and design. If need be, in the future I could further my knowledge and become "professional".
+- At this point, I can't say with certainty since I haven't had the experience with web design.
+- I have some coding experience with Python, C and most importantly - JavaScript. Also I've made some HTML pages for uni but not too serious.
+- Probably everything to be honest xd.
+- I've got everything, two PCs, monitors etc.
+- Nothing.
